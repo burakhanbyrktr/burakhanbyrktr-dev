@@ -1,1 +1,1 @@
-# burakhanbyrktr-dev
+# burakhanbyrktr- patika.dev  html odevi
